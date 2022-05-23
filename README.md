@@ -2,7 +2,7 @@
 You need to begin your own bitcoin trade, yet don't have a clue where to begin? Indeed, you have gone to the opportune spot. This article expects to explain which things you have to consider before you need to dispatch your own bitcoin/cryptographic money trade.
 
 
-Instructions to Start a Bitcoin Exchange
+Instructions to Start a [Exchanger24](https://exchanger24.org)
 
 Beginning a Bitcoin trade includes six essential advances:
 
